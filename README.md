@@ -1,1 +1,1 @@
-https://mara-le.github.io/rsschool-cv/cv
+https://mara-le.github.io/rsschool-cv/
